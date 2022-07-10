@@ -8,6 +8,7 @@
   
 
 -  Mi portfolio lo encuentran en: https://gabrielnietodejesus.com.ar/  
+-  Mi correo es: gnj@gabrielnietodejesus.com.ar
   
 
 <br/>  
